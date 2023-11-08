@@ -6,5 +6,5 @@
 
 ## Bağlantılar
 
-- E-posta: [turkiyefenomenolojitoplulugu@gmail.com](mailto:turkiyefenomenolojitoplulugu@gmail.com)
+- E-posta: [topluluk@fenomenoloji.org.tr](mailto:topluluk@fenomenoloji.org.tr)
 - Twitter: [@TrFenomenoloji](https://twitter.com/TrFenomenoloji)
